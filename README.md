@@ -1,1 +1,1 @@
-### [NFT MARKETPLACE](https://summer-mode-8517.on.fleek.co/)
+### [NFT MARKETPLACE](https://decentralized-nft-marketplace.on.fleek.co/)
